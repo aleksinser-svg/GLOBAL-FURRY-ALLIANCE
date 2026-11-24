@@ -1,0 +1,2 @@
+# GLOBAL-FURRY-ALLIANCE
+Guard
